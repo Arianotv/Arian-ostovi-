@@ -1,2 +1,0 @@
-# Arian-ostovi-
-Arian
